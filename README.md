@@ -1,2 +1,9 @@
 # hello-github
 firstone
+Hi gitmasters,
+ Juvantess is here....I am very glad to here...
+I appreciate you all for the excellent efforts and hardwork...
+Keep it up....
+I want to introduce myself..
+I am juventess.
+I am a beginner here..
